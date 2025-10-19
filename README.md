@@ -6,3 +6,5 @@ Oct. 12 2025
 Kudos to LaurieWired for her Original Sin of Computing video for introducing "obfuscated trojanized Quine compiler" idea and nomenclature. Nothing will be the same, especially after the videos on https://en.wikipedia.org/wiki/Esoteric_programming_language. Truly and new frontier is being plotted, should make for some good B-movie plots. Yes, you need to assemble assembly language and compile compilers. In order to understand recursion you must first understand recursion. 
 This is just random note take for a future publication/autobiography/gravestone.
 
+Oct. 19 2025
+Suffice to say, that is not a good use of AI image generation by the executive branch.
