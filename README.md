@@ -8,3 +8,7 @@ This is just random note take for a future publication/autobiography/gravestone.
 
 Oct. 19 2025
 Suffice to say, that is not a good use of AI image generation by the executive branch.
+
+Nov. 27, 2025
+That was fast. Happy Turkey Day. Do not deep fry the turkey, unless you have taken all safety precautions and are prepared afterwards. Theres so many YT vids on the failures.
+black friday is gonna be fun.
