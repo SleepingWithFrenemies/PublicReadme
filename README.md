@@ -12,3 +12,6 @@ Suffice to say, that is not a good use of AI image generation by the executive b
 Nov. 27, 2025
 That was fast. Happy Turkey Day. Do not deep fry the turkey, unless you have taken all safety precautions and are prepared afterwards. Theres so many YT vids on the failures.
 black friday is gonna be fun.
+
+Dec. 3, 2025 
+The Marketing is blazing. Eve catalyst, McDs grinch socks, BK spongebob, and starbucks had Hello kitty gift cards. Gonna have to catalog my own again...
